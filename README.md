@@ -3,4 +3,4 @@
 ### Conteúdos:
 - 📝 Atividades/Revisões Resolvidas
 ### Contato:
-- 📧 Entre em contato via 13henrique.paulo13@gmail.com
+- 📧 Entre em contato via contato.p.henrique7@gmail.com
